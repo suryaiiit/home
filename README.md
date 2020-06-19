@@ -1,6 +1,6 @@
 # Surya Chandra Rao Gandreddi
 
-### father, son, husband, brother & friend
+#### father, son, husband, brother & friend
 
 > Interests: Technology, Programming, Sports, Reading & Teaching
 
