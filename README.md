@@ -1,6 +1,5 @@
 # Surya Chandra Rao Gandreddi
-
-#### father, son, husband, brother & friend
+father, son, husband, brother & friend
 
 ## Priorities
 My Kid, Family, Friends & Work
